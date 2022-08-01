@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Isaac
+- 👀 I’m interested in Cyber Security, Game Design & Software Development
+- 🌱 I’m currently learning Computer Science & Culture Communication Information Technology
+- 
+- isaacmokty@gmail.com
